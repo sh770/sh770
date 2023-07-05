@@ -1,4 +1,4 @@
-**\
+
 שלום הרפז ****| **[**sh770h@gmail.com**](mailto:sh770h@gmail.com)**| **[**גיטהב **](https://github.com/sh770)**| **[**לינקדאין**](https://www.linkedin.com/in/shalom-harpaz/)** | 0587705140**
 
  בעל ניסיון של 20 שנה בתחום טכנאי מחשבים ושיווק דיגיטליPPC .
